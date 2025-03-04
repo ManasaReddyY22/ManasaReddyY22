@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **manasareddy222003@gmail.com**
 
-- ⚡ Fun fact **I have great Sense of humour😉**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
